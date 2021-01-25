@@ -32,4 +32,4 @@
     
 ![Image text](https://github.com/IPFSCopyright/release/blob/main/img/9C27F380-CE90-4517-AF15-25B88D0AF84F.png)
     
-![Image text](rhttps://github.com/IPFSCopyright/release/blob/main/img/C9BE3420-030C-48e3-881F-F62F25350616.png)
+![Image text](https://github.com/IPFSCopyright/release/blob/main/img/C9BE3420-030C-48e3-881F-F62F25350616.png)
